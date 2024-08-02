@@ -7,7 +7,7 @@
 find me @ hyv / pjsk area　✿ ⠀ ׅ　． 💒 　⎯　 intp
 
 
-4 more . https://9madoka.carrd.co/
+4 more . [INFO](https://9madoka.carrd.co/)
 
 
  ![image](https://github.com/user-attachments/assets/f2e72c33-c4b2-42db-85a1-febe2f948405)
