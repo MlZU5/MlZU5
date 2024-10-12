@@ -4,7 +4,7 @@
 
 
 ౨ৎ 　🎀　**r**ei¹　　**read** my carrd²　𓂃  ◞
-find me @ hyv / pjsk area　✿ ⠀ ׅ　． 💒 　⎯　 intp
+find me @ hyv / pjsk area　✿ ⠀ ׅ　． 💒 　⎯　 any c + h
 
 
 4 more . [INFO](https://9madoka.carrd.co/)
